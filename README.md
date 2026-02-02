@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Deep Learning School**
 
-- 📫 ****lyuboveralieva@yandex.ru****
+- 📫 ****hloistone@gmail.com****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
